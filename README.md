@@ -4,10 +4,3 @@
 • Aprendendo programação..., desenhista :pencil: , jogador de vôlei 🏐, maratonista :runner:, gamer :video_game:
 
 • Estudante do ***CCMPR Marechal Rondon*** - ***1º Ano*** - **PR**
-<deatails>
-  <summary>iehfugjwefgjewf</summary>
-  - ytrrtrtyy
-
-- ygeufgwyuefgwe
-
-</details>
