@@ -1,4 +1,11 @@
 ## Informações principais sobre mim.
-Oi, meu nome é Emanuel 🗿 🍷
-e-mail profissional: emanuelplayer2016@gmail.com
-Estou aprendendo programação, sou desenhista , jogo vôlei 🏐, gosto de correr, estudo história e arte
+# • Meu nome é Emanuel Menon 🗿 🍷
+# • E-mail :envelope: emanuelplayer2016@gmail.com
+• Aprendendo programação..., desenhista :pencil: , jogador de vôlei 🏐, maratonista :runner:, gamer :video_game:
+
+• Estudante do ***CCMPR Marechal Rondon*** - ***1º Ano*** - **PR**
+<deatils><summary>iehfugjwefgjewf</summary>
+
+- ygeufgwyuefgwe
+
+</details>
